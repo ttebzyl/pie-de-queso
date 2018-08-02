@@ -1,3 +1,5 @@
 ∑mi proyecto es hacer bananas volar
 es una mala idea jdjdjdddjdjdjdjdjjdjdjdjdjdj
-estoy mas confundida que ayer 
+¿Como planeas hacerlas volar?
+¿Porque es una mala idea?
+¿qu es jdjdjdjdjdjdjdjdjdjdjdjd?
